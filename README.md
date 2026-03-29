@@ -10,3 +10,10 @@
 
 ## Otec: George VI
 - 14.12.1895 - 06.02.1952
+
+
+## Stari rodicia
+
+
+## Dedo-otec: George V
+- 03.06.1865 - 20.01.1936
