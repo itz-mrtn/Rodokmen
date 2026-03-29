@@ -10,3 +10,10 @@
 
 ## Otec: George VI
 - 14.12.1895 - 06.02.1952
+
+
+### Stari rodicia
+
+
+## Babka-otec: Mary of teck
+- 26.05.1867 - 24.03.1953
