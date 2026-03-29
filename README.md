@@ -10,3 +10,10 @@
 
 ## Mama: Queen Elizabeth
 - 04.08.1900 - 30.03.2002
+
+
+### Stari rodicia
+
+
+## Babka-mama: Cecilia Bowes-Lyon
+- 11.09.1862 - 23.06.1938
